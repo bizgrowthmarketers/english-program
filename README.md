@@ -63,7 +63,6 @@ Elena Moreva has 6 years of experience in preparing students for UPE. With her o
 
 ### Free Consultation
 Register for a free phone consultation on the nuances of the English UPE and get a free lesson. Our consultant will answer all your questions.
-
 ---
-
 *Conditions apply. See the full terms on our website.
+
